@@ -1,5 +1,5 @@
 # Hi there 👋🤗🫶
-## Welcome from my profile 😉
+## Welcome to my profile 😉
 
 
 - *I'm currently a student👨🏻‍🎓 learning at NCC* 
