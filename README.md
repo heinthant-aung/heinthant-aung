@@ -2,7 +2,7 @@
 ## Welcome from my profile 😉
 
 
-- *I'm currently a student👨🏻‍🎓 learning computer science at NCC* 
+- *I'm currently a student👨🏻‍🎓 learning at NCC* 
 
 - *I'm interested in computer programming except front-end development* 
 
